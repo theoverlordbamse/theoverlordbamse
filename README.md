@@ -1,2 +1,1 @@
-- 👋 Hi, I’m @theoverlordbamse
-- i am an young linux enthuiast who is interested in tech, memes, and roleplay
+
